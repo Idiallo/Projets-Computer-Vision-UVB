@@ -40,6 +40,8 @@ TABSOBA Mahamadi
 
 BAZIE Jean-Marc 
 
+Issouf Ouattara
+
 ### Groupe 6 
 
 ANABEBOU Issaka T. 
